@@ -1,1 +1,1 @@
-You have received
+You received 
